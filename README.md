@@ -1,1 +1,0 @@
-# GuruVedanta1
